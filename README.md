@@ -1,1 +1,0 @@
-# Livestock_management
